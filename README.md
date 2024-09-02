@@ -1,4 +1,4 @@
-## Yoo, I'm Dax Yune Jae 👋
+## Yoo, I'm D’Yune Jhe 👋
 Welcome to my world! Check out my [blog](https://dengyunzhe.github.io/)
 
 -🎓 Junior in Electronic Information Science and Technology at 🇨🇳
